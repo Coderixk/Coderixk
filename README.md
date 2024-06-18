@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Mobile Developer
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ig: @erick_.ys
-- 😄 Pronouns: ...
+- 😄 Pronouns: He
 - ⚡ Fun fact: I Like Travelling
 
 <!---
